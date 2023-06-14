@@ -1,4 +1,4 @@
-My name is Seoin, from South Korea!
+My name is Seoin, from South Korea.
 
 🛠️ Stacks
 
