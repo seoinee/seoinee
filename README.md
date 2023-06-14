@@ -18,5 +18,3 @@ My name is Seoin, from South Korea!
 ![image](https://github.com/seoinee/seoinee/assets/96633718/26dd8ff3-6793-41e8-b39a-966c21f570a6)
 ![image](https://github.com/seoinee/seoinee/assets/96633718/b579ab46-d4b0-4e90-8a17-2e8bb0801c12)
 ![image](https://github.com/seoinee/seoinee/assets/96633718/298f50e6-3083-4b47-addb-7123fd8ca6e8)
-
-🐱 About Me
