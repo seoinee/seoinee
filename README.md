@@ -1,4 +1,4 @@
-Hi Welcome, i'm SEOIN KIM 
+My name is Seoin, from South Korea!
 
 🛠️ Stacks
 
@@ -10,26 +10,13 @@ Hi Welcome, i'm SEOIN KIM
 ![image](https://github.com/seoinee/seoinee/assets/96633718/8ded7546-0c07-46a2-b133-6c9c6c8e09fe)
 ![image](https://github.com/seoinee/seoinee/assets/96633718/210eea4d-3e76-44fc-b41a-032ae562f75a)
 
-
-       
-
 💪🏼 Tools
+
 ![image](https://github.com/seoinee/seoinee/assets/96633718/c54051fd-f11b-4cb5-a417-b44ea9212ecf)
 ![image](https://github.com/seoinee/seoinee/assets/96633718/16c8ba40-b341-4a2d-80de-cfb59f8dd120)
-![image](https://github.com/seoinee/seoinee/assets/96633718/26dd8ff3-6793-41e8-b39a-966c21f570a6)
 ![image](https://github.com/seoinee/seoinee/assets/96633718/adf8cb85-5af8-44c6-b304-39473e27dfb7)
-
-     
-
-Anurag's GitHub stats
+![image](https://github.com/seoinee/seoinee/assets/96633718/26dd8ff3-6793-41e8-b39a-966c21f570a6)
+![image](https://github.com/seoinee/seoinee/assets/96633718/b579ab46-d4b0-4e90-8a17-2e8bb0801c12)
+![image](https://github.com/seoinee/seoinee/assets/96633718/298f50e6-3083-4b47-addb-7123fd8ca6e8)
 
 🐱 About Me
-
-
-
-🏅 Algorithm Gold Level.
-
-
-
-🏆 Awards
-
