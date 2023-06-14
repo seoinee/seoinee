@@ -1,4 +1,3 @@
-My name is Seoin, from South Korea.
 
 🛠️ Stacks
 
